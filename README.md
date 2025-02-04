@@ -1,0 +1,2 @@
+# meda-gadoy
+gadoy.uz
